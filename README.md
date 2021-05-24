@@ -1,4 +1,4 @@
-## Hi there 
+## Hi there 🤙🏽
 
 ## About me:
   - 🌱 My name is Pâmela
